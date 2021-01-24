@@ -16,4 +16,4 @@
 1. Night Walk.
 2. Go to Sleep around **10pm**.
 
-01/22/2020 Updated
+01/24/2020 Updated
